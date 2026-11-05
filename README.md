@@ -1,2 +1,0 @@
-# Skrill-help-support-
-Support 
